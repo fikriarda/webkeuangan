@@ -11,3 +11,4 @@ untuk lebih lengkapnya mungkin bisa dilihat di :
 Web : https://cobakeuangan.000webhostapp.com/
 Video : https://youtu.be/cuF3OKbScOw
 adapun beberapa file penting yang akan saya cantumkan
+https://drive.google.com/drive/folders/18LaWZxiQgdNfx6IaSFO2uo3-Ek3PIwTb?usp=sharing
